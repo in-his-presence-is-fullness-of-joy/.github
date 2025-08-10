@@ -1,1 +1,3 @@
-# .github
+# *In His Presence: There is Fullness of Joy – A Journey into Divine Joy*
+## *In a world often filled with anxiety and sorrow, the promise of joy feels like a refreshing spring. Pastor Dorothy St. Clair’s two-volume book, “In His Presence: There is Fullness of Joy,” serves as a spiritual compass, guiding readers toward a deeper relationship with God and the enduring joy that flows from it. This work is more than just a book; it’s an immersive experience designed to transform a Christian’s understanding of their faith and the vibrant life God intends for them.* [More details…](https://spiritualkhazaana.com/in-his-presence-is-fullness-of-divine-joy/) 
+## #InHisPresenceisfullnessofjoy #DivineJoy #GodsPresence #SpiritualGrowth #SoulCare #InHisPresence #ChristianMotivation #PeaceInGod #DailyJoy #fullnessofjoy #Godspresence #spiritualjoy #Christianmotivation #peaceinGod #dailydevotional #Psalm16:11
